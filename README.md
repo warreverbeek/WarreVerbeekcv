@@ -1,1 +1,1 @@
-Hallo ik ben Warre Verbeek. Ik ben 18 jaar en studeer Toegepaste Informatica te Karel de Grotehogeschool. Wil je meet weten over mij bekijk volgende website: https://warreboro.github.io/WarreVerbeekcv/
+Hallo ik ben Warre Verbeek. Ik ben 18 jaar en studeer Toegepaste Informatica te Karel de Grotehogeschool. Wil je meet weten over mij bekijk volgende website: https://warreverbeek.github.io/WarreVerbeekcv/
